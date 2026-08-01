@@ -1,5 +1,7 @@
 # Rumah Maguwoharjo (Seputaran Krodan)
 
+![Tampak Depan](assets/maguwoharjo-krodan-depan.jpg)
+
 - **Harga:** Rp 28.000.000 / tahun (Nego)
 - **Lokasi:** Perum Seputaran Krodan, Maguwoharjo, Depok, Sleman
 - **Kontak:** WA [0895-4049-49149](https://wa.me/62895404949149) (Sumber: Facebook)
